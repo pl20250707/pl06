@@ -14,6 +14,6 @@
 简便、安全、高清、无广告的观影体验，选择我们平台，轻松享受最佳日本AV影片。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pl20250707/pl06 ）</span>
 
 
